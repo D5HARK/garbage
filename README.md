@@ -1,2 +1,2 @@
 # garbage
-fresh hot trash
+i'm the trash man
